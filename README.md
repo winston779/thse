@@ -1,6 +1,6 @@
 # Thse机场官网地址
 
-最新地址：[thse.io](https://thse.io/zh/#/auth/signup;referral=ZS5oXWNU)
+最新地址：[thse.io](https://thse.io/zh/#/auth/signup;referral=FepLnugB)
 
 ## Thse介绍
 
